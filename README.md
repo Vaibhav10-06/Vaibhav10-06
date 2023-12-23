@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vbghuge2002@gmail.com**
 
-- 📄 Know about me more [https://drive.google.com/file/d/116YGF7fYU35Cqp1HoXG1-vFReawzvT2q/view?usp=drive_link](https://drive.google.com/drive/folders/1MvSzRLn6KvVnwEPdN_MC6zMb0ySnLTa2)
+- 📄 Know about me more [https://drive.google.com/file/d/116YGF7fYU35Cqp1HoXG1-vFReawzvT2q/view?usp=drive_link](https://drive.google.com/file/d/1vSioLpJIg7rc1xWpdg1kqGvSunZY5Bhk/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
